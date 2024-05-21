@@ -2,6 +2,6 @@
 ## Ty Tuff
 
 
-2 legit, 2 legit 2 quit 
+I think for a living a play the rest of the time. 
 
 ![](1615586692982.jpg)
